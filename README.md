@@ -8,3 +8,5 @@ Electrical / Instrumentation & Controls engineer — PLC/HMI, VFDs, commissionin
 - [Singapore](Hemang-Joshi-Resume-Singapore.pdf)
 
 Contact: hemangjoshi37a@gmail.com · https://hjlabs.in
+- [Gulf / GCC](Hemang-Joshi-Resume-Gulf.pdf)
+- [Remote](Hemang-Joshi-Resume-Remote.pdf)
